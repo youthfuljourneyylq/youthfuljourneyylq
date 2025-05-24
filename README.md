@@ -1,0 +1,4 @@
+<h1 style="text-align: left;"><strong>What does your si joint pain feel like</strong></h1>
+<p>When my SI joint gets particularly unstable, I’m generally fine moving about and doing things. As soon as I sit or lay down for even 10 minutes, it stiffens up and then any minor movement sends me into painful spasm, and causes me to involuntarily clench my abs. It’s nearly impossible to turn over in bed.</p>
+<p>I’m young so I think I improve more quickly than older folks with this issue when it flares up. It doesn’t feel like sciatica, but rather, a spastic pain and tension in my lower back. Almost as if all my muscles and tendons are trying really hard to not snap?</p>
+<p>The only thing that helps me is to keep moving and rolfing massages.</p>
